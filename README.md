@@ -1,2 +1,3 @@
 # solid-octo-carnival
-VOU EXCLUIR ISSO APÒS TERMINAR DE ESCREVER O POST 2022-03-12
+
+It all started with the big bang!
